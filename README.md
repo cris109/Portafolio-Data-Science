@@ -8,6 +8,6 @@ Este es un espacio que busca mostrar los conocimientos y habilidades que he adqu
 - [Gmail](cortegab@unal.edu.co)
 
 ## Contratación
-Si quieres contratarme puedes escribir a corteb@unal.edu.co para consultas.
+Si quieres contratarme puedes escribir a cortegab@unal.edu.co para consultas.
 
 
